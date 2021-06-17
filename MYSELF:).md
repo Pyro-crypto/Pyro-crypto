@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Pyro-crypto
+- 👀 I’m interested in Hacking scripts
+- 🌱 I’m currently learning ethical hacking
+- 📫  reach me through rageraghavan@gmail.com
+- I am 15 just learning which covered my interest a lot and i assured myself it will make me proud...
+--->
